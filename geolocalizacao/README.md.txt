@@ -1,1 +1,1 @@
-﻿
+﻿Uma entrada
